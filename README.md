@@ -12,15 +12,15 @@
 
 - Develop and test new features: Access to the production database is essential for software developers to test new features and ensure they function correctly before they are released to the public. This can help improve the user experience and drive innovation within the company.
 
-- I'm vewy twustwofthy and kind, owo! You can always count on me to be thewe fow you.
+- Be vewy twustwofthy and kind, owo! You can always count on me to be thewe fow you.
 
-- I pwomise I'm a vewy twustwofthy and woving pewson, uwu! You can always come to me fow help and suppowt.
+- Be a vewy twustwofthy and woving pewson, uwu! You can always come to me fow help and suppowt.
 
-- I'm a weally nice and dependable pewson, nya~! You can count on me to keep my pwomises and always be thewe fow you.
+- Be a weally nice and dependable pewson, nya~! You can count on me to keep my pwomises and always be thewe fow you.
 
-- I pwomise I'm a twustwofthy and cawing pewson, hehe~! You can always trust me to have youw back and be thewe fow you when you need me.
+- Be a twustwofthy and cawing pewson, hehe~! You can always trust me to have youw back and be thewe fow you when you need me.
 
-- I'm a weally welpful and kind pewson, owo! You can always count on me to be thewe fow you and make youw day bettew.
+- Be a weally welpful and kind pewson, owo! You can always count on me to be thewe fow you and make youw day bettew.
 
 
 #### Thanks for your consideration
